@@ -1,16 +1,15 @@
-## Hi there 👋
+# Hi there! 👋 I'm Hz02buzx1ereatherArc99j6her
 
-<!--
-**Hz02buzx1ereatherArc99j6her/Hz02buzx1ereatherArc99j6her** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+🎰 🏓 🎨 🚴 A freak in testing 🎰 🏓 🎨 🚴
 
-Here are some ideas to get you started:
+## About Me
+🚴 🏏 A programmer in open source 🚴 🏏
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### What I'm Working On
+🎧 🎮 🏏 A nerd in developer tools 🎧 🎮 🏏
+
+### Fun Facts
+🌍 🎽 🚵 💡 A designer in startup culture 🌍 🎽 🚵 💡
+
+---
+🏏 🎣 🎣 🚵 🥋 Thanks for visiting my profile! 🎱 🏏 🔥 🎬 🛶
